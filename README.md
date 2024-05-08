@@ -1,2 +1,2 @@
 # ashil
-ashil is the best is airdrop
+ashil is the best in airdrop
